@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working in RecSys<br>Studying in MIPT<br>CMC MSU finished<br>Setting up startups
+Working in RecSys<br>MIPT & CMC MSU finished<br>Consulting & Setting up startups
 
 
 ## 🌐 Socials:
